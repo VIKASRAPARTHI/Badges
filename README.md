@@ -1,2 +1,2 @@
-# Badge issued
+# Badge issue
 
